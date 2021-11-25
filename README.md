@@ -1,5 +1,6 @@
 ### Hi there,I'm Jeevitha 👋
 👨🏻‍💻 About Me :
+
   Currently pursuing B Tech in Computer Science and Engineering at Amrita Viswavidyapeetham, Amritapuri...
   Im a computer science student passionate about programming and design.
   I like to travel. I believe travelling gives you a new perspective to everything. You get to know a lot about the different cultures, the cuisines,     their history.I like to explore new things and ready to learn new things .
