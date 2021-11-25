@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there,Im Jeevitha 👋
 👨🏻‍💻 About Me
   Currently pursuing B Tech in Computer Science and Engineering at Amrita Viswavidyapeetham, Amritapuri...
   Im a computer science student passionate about programming and design.
