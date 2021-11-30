@@ -11,7 +11,8 @@
 - 🎓 Studying Computer Science Engineering at Amrita Vishwa Vidyapeetham.
 - 💬 Ask me about Tech Stuff..
 - 📫 How to reach me: [linkedin!]![icons8-color-20](https://user-images.githubusercontent.com/91887848/143999088-446496f5-2643-46dc-8c9a-ed9176881b91.png)
- https://www.linkedin.com/in/konaparthi-jeevitha-a04688226/ ,[Discord] konaparthijeevitha08#5745
+ https://www.linkedin.com/in/konaparthi-jeevitha-a04688226/ ,[Discord![icons8-discord-15](https://user-images.githubusercontent.com/91887848/143999688-1c8e3d83-a59f-40d2-ad6b-8686858d7e0b.png)
+] konaparthijeevitha08#5745
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I spend 24/7 on listening music 🎵...
 --> Call me as Jeev/Captain 🧢 ...
