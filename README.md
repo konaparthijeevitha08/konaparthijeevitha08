@@ -8,7 +8,7 @@
   I'm an narcissistic one.
   
 
-- 🌱 I’m currently learning problem solving,HTML and Figma ...
+- 🌱 I’m currently learning problem solving, HTML and Figma ...
 - 🎓 Studying Computer Science Engineering at Amrita Vishwa Vidyapeetham.
 - 💬 Ask me about Tech Stuff..!
 - 📫 How to reach me: [linkedin!]https://www.linkedin.com/in/konaparthi-jeevitha-a04688226/ ,[Discord!] konaparthijeevitha08#5745
