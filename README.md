@@ -10,7 +10,8 @@
 - 🌱 I’m currently learning problem solving,HTML and Figma ...
 - 🎓 Studying Computer Science Engineering at Amrita Vishwa Vidyapeetham.
 - 💬 Ask me about Tech Stuff..
-- 📫 How to reach me: [linkedin!] https://www.linkedin.com/in/konaparthi-jeevitha-a04688226/ ,[Discord] konaparthijeevitha08#5745
+- 📫 How to reach me: [linkedin!]![icons8-color-20](https://user-images.githubusercontent.com/91887848/143999088-446496f5-2643-46dc-8c9a-ed9176881b91.png)
+ https://www.linkedin.com/in/konaparthi-jeevitha-a04688226/ ,[Discord] konaparthijeevitha08#5745
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I spend 24/7 on listening music 🎵...
 --> Call me as Jeev/Captain 🧢 ...
