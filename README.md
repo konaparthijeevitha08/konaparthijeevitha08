@@ -3,8 +3,8 @@
 
   Currently pursuing B Tech in Computer Science and Engineering at Amrita Viswavidyapeetham, Amritapuri...
   I'm a computer science student passionate about programming and Cloud Computing.
-  Content Writer 🖋..... 
-  I like to travel. I believe travelling gives you a new perspective to everything. You get to know a lot about the different cultures, the cuisines,     their       history.I like to explore new things and ready to learn new things .
+  I like to travel. I believe travelling gives you a new perspective to everything. You get to know a lot about the different cultures, the cuisines,     their       history.I like to 
+  explore new things and ready to learn new things .
   I'm an narcissistic one.
   
 
